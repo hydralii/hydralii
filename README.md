@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @keynf
+- 👀 I’m interested in bot coding !
+- 🌱 I’m currently learning python, javascript and c#
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me lolwael802@gmail.com
